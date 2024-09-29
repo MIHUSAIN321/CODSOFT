@@ -1,1 +1,1 @@
-# CODSOFT
+CODSOFT is a vibrant and diverse cummunity that brings together individuals with similar objective and ultimate goals. Our main focus is on creating opportunities that span various area . Including leadership development , learning , student engagement , and fostering shared interests.
